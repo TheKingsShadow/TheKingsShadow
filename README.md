@@ -6,8 +6,7 @@ ${\textsf{\color{#80759F}wip i may or may not continue...}}$
 ---‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -𖥔- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -𖥔- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
 </div>
 
-
-<img width="735" height="494" alt="17818123729845215427483159000898" src="https://github.com/user-attachments/assets/71b7090b-46a0-4824-bd88-55e51196cb44" />
+<img width="675" height="494" alt="17818217613154228520934604065878" src="https://github.com/user-attachments/assets/b267f830-5123-4da1-8c12-af4811a792fe" />
 
 <p align="center">
 - 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -

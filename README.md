@@ -1,5 +1,5 @@
 <p align="center">
-${\textsf{\color{#80759F}wip i may or may not continue...}}$
+${\textsf{\color{#80759F}𝑨𝒔 𝒕𝒉𝒆 𝒉𝒆𝒓𝒐'𝒔 𝒍𝒊𝒈𝒉𝒕 𝒈𝒓𝒆𝒘, 𝒔𝒐 𝒕𝒐𝒐 𝒅𝒊𝒅 𝒉𝒊𝒔 𝒔𝒉𝒂𝒅𝒐𝒘..}}$
   
 <img width="734" height="164" alt="17818123456094259379772340321388" src="https://github.com/user-attachments/assets/0252b117-8b8b-4339-a069-4b48fd938518" />
 

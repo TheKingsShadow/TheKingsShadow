@@ -3,7 +3,7 @@ ${\textsf{\color{#80759F}wip i may or may not continue...}}$
   
 <img width="734" height="164" alt="17818123456094259379772340321388" src="https://github.com/user-attachments/assets/0252b117-8b8b-4339-a069-4b48fd938518" />
 
----‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -❀- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -❀- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
+---‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -𖥔- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -𖥔- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
 </div>
 
 
@@ -31,3 +31,6 @@ ${\textsf{\color{#80759F}wip i may or may not continue...}}$
 
 
 <img width="734" height="124" alt="17818124023632476835708845409430" src="https://github.com/user-attachments/assets/e2b4be1b-759d-4828-aa70-b9c95f9c9f74" />
+
+<p align="center">
+${\textsf{\color{#80759F}𝒑𝒇𝒑 𝒅𝒓𝒂𝒘𝒏 𝒃𝒚 𝒎𝒆 ᯓ★}}$

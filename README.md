@@ -1,5 +1,5 @@
 <p align="center">
-${\textsf{\color{#80759F}blehh}}$
+${\textsf{\color{#80759F}wip i may or may not continue...}}$
   
 <img width="734" height="164" alt="17818123456094259379772340321388" src="https://github.com/user-attachments/assets/0252b117-8b8b-4339-a069-4b48fd938518" />
 

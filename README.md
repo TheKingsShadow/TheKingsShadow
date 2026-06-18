@@ -1,12 +1,13 @@
 <p align="center">
 "𝑻𝒐 𝒌𝒏𝒐𝒘 𝒉𝒐𝒘 𝒊𝒕 𝒆𝒏𝒅𝒔 𝒂𝒏𝒅 𝒔𝒕𝒊𝒍𝒍 𝒃𝒆𝒈𝒊𝒏 𝒕𝒐 𝒔𝒊𝒏𝒈 𝒊𝒕 𝒂𝒈𝒂𝒊𝒏-𝒂𝒔 𝒊𝒇 𝒊𝒕 𝒎𝒊𝒈𝒉𝒕 𝒕𝒖𝒓𝒏 𝒐𝒖𝒕 𝒕𝒉𝒊𝒔 𝒕𝒊𝒎𝒆.."
-  <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
-
+  
+<img width="734" height="164" alt="17818123456094259379772340321388" src="https://github.com/user-attachments/assets/0252b117-8b8b-4339-a069-4b48fd938518" />
 
 ---‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -❀- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -❀- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
 </div>
 
-<img width="735" height="518" alt="1781811865267902205512219828352" src="https://github.com/user-attachments/assets/53283305-9c6c-4197-a3e3-2c44a04877e9" />
+
+<img width="735" height="494" alt="17818123729845215427483159000898" src="https://github.com/user-attachments/assets/71b7090b-46a0-4824-bd88-55e51196cb44" />
 
 <p align="center">
 - 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -
@@ -29,22 +30,4 @@
  𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐 , 𝒔𝒐𝒏𝒊𝒄 , 𝒎𝒉𝒂 , 𝒋𝒋𝒌 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑
 
 
-<img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
-
-⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔
-
-
-<!--
-**TheKingsShadow/TheKingsShadow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="734" height="124" alt="17818124023632476835708845409430" src="https://github.com/user-attachments/assets/e2b4be1b-759d-4828-aa70-b9c95f9c9f74" />

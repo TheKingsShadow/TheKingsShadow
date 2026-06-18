@@ -10,7 +10,7 @@ ${\textsf{\color{#80759F}blehh}}$
 <img width="735" height="494" alt="17818123729845215427483159000898" src="https://github.com/user-attachments/assets/71b7090b-46a0-4824-bd88-55e51196cb44" />
 
 <p align="center">
-${\textsf{\color{#A4A0B6}- 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -}}$
+- 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -
 
 <p align="center">
  ${\textsf{\color{#80759F}꒰(✘ ◜)꒱Ⳋ}}$

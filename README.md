@@ -1,12 +1,12 @@
 <p align="center">
-"To know how it ends and still begin to sing it again-as if it might turn out this time.."
+"𝑻𝒐 𝒌𝒏𝒐𝒘 𝒉𝒐𝒘 𝒊𝒕 𝒆𝒏𝒅𝒔 𝒂𝒏𝒅 𝒔𝒕𝒊𝒍𝒍 𝒃𝒆𝒈𝒊𝒏 𝒕𝒐 𝒔𝒊𝒏𝒈 𝒊𝒕 𝒂𝒈𝒂𝒊𝒏-𝒂𝒔 𝒊𝒇 𝒊𝒕 𝒎𝒊𝒈𝒉𝒕 𝒕𝒖𝒓𝒏 𝒐𝒖𝒕 𝒕𝒉𝒊𝒔 𝒕𝒊𝒎𝒆.."
   <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
 
 
 ---‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -❀- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -❀- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
 </div>
 
-<img width="820" height="461" alt="17818094008257468946606008373435" src="https://github.com/user-attachments/assets/a9410c25-b0a9-4daf-86dc-700331f98921" />
+<img width="735" height="518" alt="1781811865267902205512219828352" src="https://github.com/user-attachments/assets/53283305-9c6c-4197-a3e3-2c44a04877e9" />
 
 <p align="center">
 - 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -

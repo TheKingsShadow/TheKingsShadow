@@ -3,7 +3,15 @@ ${\textsf{\color{#80759F}𝑨𝒔 𝒕𝒉𝒆 𝒉𝒆𝒓𝒐'𝒔 𝒍𝒊�
   
 <img width="734" height="164" alt="17818123456094259379772340321388" src="https://github.com/user-attachments/assets/0252b117-8b8b-4339-a069-4b48fd938518" />
 
----‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -𖥔- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -𖥔- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
+
+<div align="center">
+---‧₊˚|
+ <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
+-𖥔-
+ <a href="https://thekingsshadow.atabook.org/?page=1">𝕬𝒕𝒂𝒃𝒐𝒐𝒌</a>
+-𖥔-
+ <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
+|˚₊‧---
 </div>
 
 <img width="675" height="494" alt="17818217613154228520934604065878" src="https://github.com/user-attachments/assets/b267f830-5123-4da1-8c12-af4811a792fe" />
